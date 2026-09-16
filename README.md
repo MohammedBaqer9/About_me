@@ -1,6 +1,6 @@
 # 💫 About Me:
 
-Hi, I’m <b>Mohammed B. Alrasasi</b><br><br>
+Hi, I’m <b>Mohammad B. Alrasasi</b><br><br>
 
 🎓 Computer Science graduate from <b>King Fahd University of Petroleum and Minerals (KFUPM)</b><br><br>
 
